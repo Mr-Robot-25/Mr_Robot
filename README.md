@@ -18,8 +18,7 @@ Curiously wanting to learn: X86 and ARM assembly Languanges, processor and syste
 Get all the juice at my website: (url coming soon).
 
 ### Find me elsewhere🌍
-LinkedIn - 
-Behance - 
-Instagram - 
-Whatsapp - 
+LinkedIn - https://www.linkedin.com/in/bahati-masudi-a01567220/
+Behance - https://www.behance.net/geezgod
+Whatsapp - +254716757696
 Also Email me at  - Bahatimasudi2532@gmail.com, Bahatimasudi@protonmail.com.
